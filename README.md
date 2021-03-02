@@ -1,1 +1,2 @@
 # team1_bios
+My name is Spencer. I am a computer engineering major, and this is my third semester at BYUI. I am from Springfield, Virginia. I love hiking, and I'm very interested in linguistics. I also like basketball, though I've nevevr played for a team or anything. For information about my height, weight, build, eye skin and hair colors, and facial features, just look at me. I wont be bothered by it.
